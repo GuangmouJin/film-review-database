@@ -1,0 +1,3 @@
+# #BFI #Frames of Mind:The Films of Peter Greenaway 长评 - 历史书写的囚徒。剧情…
+
+#BFI #Frames of Mind:The Films of Peter Greenaway 长评 - 历史书写的囚徒。剧情上涉及第七章到第十六章的内容，以第三人称诉说了男主的四次被囚禁，以海滩，电梯，酒店和检查站为牢房为观众介绍了男主从中年到老年的故事。结尾处的四个箱子为大家揭开整部电影的“真相”。打字机，92个人物的玩偶，人物器官图鉴和记录了第一章男主真实经历的60mm胶片。影片本身是以Greenaway杜撰的人物男主童年好友杜撰的故事，这也解释了为什么打字机一直出现，并且很多时候以第三人称叙事，而利用1001夜的寓言收尾也似乎就在告知我们电影的包孕体形式。内核也再次借着这个机会被提及了出来，“没有历史，只有历史学家“，突然发现导演连自己都在嘲讽，”a man certainly interested in communicating with his ideas of the history to the world”。

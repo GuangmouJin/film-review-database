@@ -1,0 +1,3 @@
+# BFI - Big screen classics 长评 - If I had a normal family 电影更适合理解成一…
+
+BFI - Big screen classics 长评 - **If I had a normal family** 电影更适合理解成一部公路片 两个人的成长 互为对照的两个人 一个反抗着家庭 一个则寻找着家庭（母亲） 一个有着清晰的计划 一个未来则满是未知 最后结尾还有固定镜头对照手持的两场葬礼 爱达荷他们围坐在火堆 台词也反映出两个人的对照观点 工作和生活 完成工作的Scott就会回到他的生活 而这工作对于Mike就是生活 “i love you and you don't pay me” 影片中有大量的空镜 多为天空 云层 映射着男主Mike那不确定的“此时” 有时还可以做为转场 猝睡症的发作时的视觉表达和记忆交织剪得非常好 餐厅bob上前搭讪那场戏 Scott背对Bob说出那些台词 红光打到他脸上 那种极致的冷酷

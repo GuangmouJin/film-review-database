@@ -1,0 +1,3 @@
+# 29th September is a UK bank holiday.   Unable to check my iDingTalk…
+
+29th September is a UK bank holiday.   Unable to check my iDingTalk during this time, but I will get back to you on Tuesday. If you wish to contact the IT service desk, please click the contact IT link and submit a ticket.

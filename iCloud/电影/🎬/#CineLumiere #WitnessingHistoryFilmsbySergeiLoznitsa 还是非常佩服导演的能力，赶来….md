@@ -1,0 +1,6 @@
+# #CineLumiere #WitnessingHistoryFilmsbySergeiLoznitsa 还是非常佩服导演的能力，赶来…
+
+# 
+
+
+#CineLumiere #WitnessingHistoryFilmsbySergeiLoznitsa 还是非常佩服导演的能力，赶来庆祝的人们与那稍远处承载着历史的浮雕两个视角交叉剪辑带来的张力非常大，交织在一起的静与动的画面把历史与现在做了很好的对照，甚至在结尾处出现了融合。视觉上基本采用固定镜头，凝视感很强，浅焦让观众的注意力更集中，而每次浮雕的特写转全景则是带给观众更加厚重的历史感和沉重感。
