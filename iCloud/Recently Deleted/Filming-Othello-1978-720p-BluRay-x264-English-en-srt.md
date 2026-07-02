@@ -1,3 +1,0 @@
-# Filming.Othello.1978.720p.BluRay.x264-English-en.srt
-
-# [0A079D48-B8FF-4CC2-8639-A7E150848DFD](attachments/0A079D48-B8FF-4CC2-8639-A7E150848DFD.srt)
